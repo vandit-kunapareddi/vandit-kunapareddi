@@ -2,7 +2,7 @@
 
 I'm a **finance & operations builder for consumer brands**, working at the intersection of finance, operations, and software — building the models, systems, and internal tools that help small teams run with clarity.
 
-🌐 **[vanditk.com](https://vanditk.com)**  ·  ✍️ [Operating Margin](https://vanditkunapareddi.substack.com)  ·  💼 [LinkedIn](https://www.linkedin.com/in/vanditkunapareddi)
+🌐 **[vanditk.com](https://vanditk.com)**  ·  ✍️ [Operating Margin](https://vanditkunapareddi.substack.com)  ·  💼 [LinkedIn](https://www.linkedin.com/in/vandit-kunapareddi)
 
 ---
 
